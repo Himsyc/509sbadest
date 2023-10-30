@@ -1,1 +1,10 @@
 # 509sbadest
+A family owned business 
+Trustworthy and for the people for real 
+Something like an origination 
+But led by FAMILY MEN
+THAT CAN SOON BE A FAMILY NATION
+LIFE GOES ON WHEN YOU PASS 
+WHY NOT GIVE THE LIFE  CYCLE SOMETHING TO REMEBER U BY
+HIMSYC INVEST IN A BETTER FUTURE FOR YOU
+IN CORPORATE BY SSM
